@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @XynxEsports
+- 👀 I’m interested in coding.
+- 🌱 I’m currently learning about coding
